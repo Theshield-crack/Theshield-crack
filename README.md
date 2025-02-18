@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Althaf also known as @Theshield-crack 
 - 👀 I’m passionate in learning new things in cyber security  
 - 🌱 I’m currently learning cyber security 
-- 💞️ I’m looking to collaborate on ...
 - 📫 You'll can reach me via http://www.linkedin.com/in/althafaman07
 
 
